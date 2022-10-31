@@ -12,7 +12,7 @@
 
 
 
-Ben Seda Kara yazılıma ilgi duyuyorum. 
+I'm Seda Kara, I'm interested in software
   
   
 
